@@ -9,7 +9,7 @@
 完整信息和购买选项请访问 [www..cmivps.com](https://my.cmivps.com/aff.php?aff=514).
 
 ## CMIVPS 优惠码
-**优惠码：** 可享受九折优惠  
+**优惠码：** 可享受最新优惠  
 立即使用：[点击此处获取优惠](https://my.cmivps.com/aff.php?aff=514)
 
 ## CMIVPS 价格
